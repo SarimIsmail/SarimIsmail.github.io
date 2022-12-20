@@ -1,3 +1,3 @@
-# SarimIsmail.github.io
+# Shiriiiiiiiiiiiiiiiiiiiii
 ok
-theme: minima
+Tension lene se ghar nahi chalta bhai
